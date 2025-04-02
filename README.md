@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on creating websites, software, apps and games
 - 📫 How to reach me, email: kgothatsomagatsela63@gmail.com & instagram: @_sosa1900_ 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love Skateboarding.
+- 
 
 <!---
 kgothatsomagatselaa/kgothatsomagatselaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
